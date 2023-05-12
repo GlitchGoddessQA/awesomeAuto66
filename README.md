@@ -1,4 +1,4 @@
-![Uploading FE developer, копия.png…]()
+![FE developer, копия](https://github.com/awesomeAuto66/Victoria/assets/129331354/e560b8c5-ba60-42c1-bbad-c16368951f16)
 
 Victoria QA
 
